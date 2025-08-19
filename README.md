@@ -75,4 +75,6 @@ The **Abacus Exchange login** process is the essential key to secure and anonymo
 
 
 
-Update:  13.08.2025 Just checked, the link is working fine now!
+
+
+Update:  Tuesday 19 August 2025 link is live and clickable
